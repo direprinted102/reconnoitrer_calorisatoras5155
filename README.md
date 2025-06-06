@@ -1,1 +1,1 @@
-dramatis richdom inspiriter diverges nonassimilation polygordius perambulated autocollimator spindlelegs handlebar 
+nonassimilation antesignanus indagator platyopic chromoplast ersatzes amblygon moonsickness somesthetic bicarinate 
